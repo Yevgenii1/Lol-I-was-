@@ -1,3 +1,7 @@
+
+
+https://github.com/user-attachments/assets/6b028e75-9f6e-4326-80a0-334ef33ff910
+
 # Lol-I-was-
 Digimon star 
 …
